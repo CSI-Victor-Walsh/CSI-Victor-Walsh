@@ -16,7 +16,7 @@
 - ***1/2*** taza de aceitunas rellenas
 - ***5*** huevos hervidos picados, mayonesa a gusto
 - ***2*** cuharaditas de crema de leche
-- pimiento marrón cortado en cubitos
+- pimiento morrón cortado en cubitos
 ### Prodecimiento
 1. Cocina la pasta según las instrucciones del paquete, con un poco de sal. Escúrrela bien y reserva.
 2. Mezcla todos los ingredientes, y agrega la mayonesa diluida con las 2 cucharadas de crema de leche.
